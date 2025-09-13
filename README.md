@@ -65,7 +65,7 @@
 
 ## 🌐 Connect With Me  
 📫 Email: **jainish2107@gmail.com**  
-💼 LinkedIn: *(Add your LinkedIn link here if available)*  
+💼 LinkedIn: **www.linkedin.com/in/jainish-patel-279507374**  
 💻 GitHub: [**Jainish21705**](https://github.com/Jainish21705)  
 
 ---
